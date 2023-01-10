@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/gautam-kashyap1/](https://www.linkedin.com/in/gautam-kashyap1/)
 
-- ⚡ Fun fact **I like Winter😅**
+- ⚡ Fun fact **I like travelling but too lazy to go Out😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
