@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mishragautam996@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/gautam-kashyap1/](https://medium.com/@gautammishra71597/who-should-start-coding-8a54cbc036f4)
+- 📄 Know about my Blogs [https://medium.com/@gautammishra71597/who-should-start-coding-8a54cbc036f4](https://medium.com/@gautammishra71597/who-should-start-coding-8a54cbc036f4)
 
 - ⚡ Fun fact **I like travelling but too lazy to go Out😅**
 
